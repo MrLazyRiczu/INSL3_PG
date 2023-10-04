@@ -1,0 +1,1 @@
+Projekt WSB Merito zajęc z przedmioteu Narzędzia wspierające wytwarzanie oprogramowania 
